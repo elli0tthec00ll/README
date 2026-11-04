@@ -28,8 +28,6 @@
   
 - *More too be added .*
 
-</details>
-
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
 <details>
