@@ -3,7 +3,7 @@
 
 ***[ SCYTHE ] : ❝ Oh how rude of me . Allow me too reintroduce myself properly ♡ ! ❞***
 
-![](https://komarev.com/ghpvc/?username=elli0tthec00ll)
+![](https://komarev.com/ghpvc/?username=elli0tthec00ll&label=scythe+beans)
 
 
 
