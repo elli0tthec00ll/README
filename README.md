@@ -10,6 +10,8 @@
   
 - *17 y/o .*
 
+- *He / Him , It / It's . NEVER use she / her terms on me please .*
+
 - *DID , Questioning BPD .*
 
 - *More too be added .*
