@@ -35,7 +35,7 @@
 
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 <details>
-<summary> 𓏲ּ𝄢 WHERE YOU'LL SEE ME AT ₊⊹ </summary>
+<summary> ♯ WHERE YOU'LL SEE ME AT ಄ </summary>
   
   - *Bakery*
 
