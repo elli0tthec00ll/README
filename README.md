@@ -1,8 +1,8 @@
 ### Welcome !
 𓎢𓎠𓎟𓎠𓎟𓎠𓎠𓎟𓎡
 <details>
-<summary>ᛝ About me ♡</summary>
-meow this is a wip ok shh
+<summary>ᛝ About me / Byi ♡</summary>
+17 y/o .
 </details>
 𓎢𓎠𓎟𓎠𓎟𓎠𓎠𓎟𓎡
 <details>
