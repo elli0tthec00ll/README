@@ -27,7 +27,7 @@
 - *I am offtab sometimes . whisper to interact is prefered !*
   
 - *More too be added .*
-<details>
+</details>
 
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
