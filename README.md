@@ -1,4 +1,4 @@
-### Welcome ! please know this is still a work in progress !
+" Oh how rude of me . Allow me too reintroduce myself properly ! "
 
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
