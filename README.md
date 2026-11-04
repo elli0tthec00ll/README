@@ -7,5 +7,5 @@ meow this is a wip ok shh
 𓎢𓎠𓎟𓎠𓎟𓎠𓎠𓎟𓎡
 <details>
 <summary>ᛝ DNI ♡</summary>
-Drama , T.R.A.S.H , Pro/Darkshippers , MAGA , Chance yumes
+! Drama , T.R.A.S.H , Pro/Darkshippers , MAGA , Chance yumes !
 </details>
