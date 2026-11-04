@@ -41,7 +41,7 @@
 
   - *Docks*
 
-  - *With Friends*
+  - *With Friends (˶ˆᗜˆ˵)*
   
   </details>
 
