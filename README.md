@@ -45,6 +45,8 @@
 
   - *Docks*
 
+  - *Island (Probably spectating rps or hosting)*
+
   - *With Friends (˶ˆᗜˆ˵)*
   
   </details>
