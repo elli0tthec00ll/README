@@ -1,4 +1,4 @@
-<img width="1395" height="770" alt="Screenshot 2026-11-04 011542" src="https://github.com/user-attachments/assets/3b04ada8-9502-474d-a529-8842185c1226" />
+<img width="1600" height="320" alt="Mastery_Banner_II_Scythe" src="https://github.com/user-attachments/assets/b3c6020e-7fea-4191-a629-5fcb16c9e9f1" />
 
 
 ***[ SCYTHE ] : ❝ Oh how rude of me . Allow me too reintroduce myself properly ♡ ! ❞***
