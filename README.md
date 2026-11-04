@@ -1,5 +1,7 @@
 ### Welcome !
+
 𓎢𓎠𓎟𓎠𓎟𓎠𓎠𓎟𓎡
+
 <details>
 <summary>ᛝ About me / Byi ♡</summary>
   
@@ -11,16 +13,19 @@
 
 - More too be added .
 </details>
+
 𓎢𓎠𓎟𓎠𓎟𓎠𓎠𓎟𓎡
+
 <details>
 <summary>ᛝ DNI ♡</summary>
-Drama 
   
-T.R.A.S.H 
+- Drama 
   
-Pro/Darkshippers 
+- T.R.A.S.H 
   
-MAGA 
+- Pro/Darkshippers 
   
-Chance yumes !
+- MAGA 
+  
+- Chance yumes !
 </details>
