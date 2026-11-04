@@ -3,15 +3,22 @@
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
 <details>
-<summary>ᛝ About me / Byi ♡</summary>
+<summary>ᛝ About me ♡</summary>
   
 - 17 y/o .
-  
-- i will block freely .
 
 - DID , Questioning BPD .
 
 - More too be added .
+</details>
+
+⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+
+<details>
+<summary> 𓏲ּ𝄢 Byi ₊⊹ </summary>
+
+- I will block freely .
+
 </details>
 
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
