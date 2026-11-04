@@ -1,15 +1,15 @@
-" Oh how rude of me . Allow me too reintroduce myself properly ! "
+***[ SCYTHE ] : ❝ Oh how rude of me . Allow me too reintroduce myself properly ♡ ! ❞***
 
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
 <details>
 <summary>ᛝ About me ♡</summary>
   
-- 17 y/o .
+- *17 y/o .*
 
-- DID , Questioning BPD .
+- *DID , Questioning BPD .*
 
-- More too be added .
+- *More too be added .*
 </details>
 
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
@@ -17,7 +17,9 @@
 <details>
 <summary> 𓏲ּ𝄢 Byi ₊⊹ </summary>
 
-- I will block freely .
+- *I will block freely .*
+
+- *More too be added .*
 
 </details>
 
@@ -26,13 +28,13 @@
 <details>
 <summary>𓏵 DNI ♡</summary>
   
-- Drama 
+- *Drama .* 
   
-- T.R.A.S.H 
+- *T.R.A.S.H*
   
-- Pro/Darkshippers 
+- *Pro/Darkshippers .*
   
-- MAGA 
+- *MAGA .*
   
-- Chance yumes !
+- *Chance yumes !*
 </details>
