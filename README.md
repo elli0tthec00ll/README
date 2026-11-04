@@ -6,7 +6,7 @@
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
 <details>
-<summary>ᛝ About me ♡</summary>
+<summary>ᛝ ABOUT ME ♡</summary>
   
 - *17 y/o .*
 
@@ -18,7 +18,7 @@
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
 <details>
-<summary> 𓏲ּ𝄢 Byi ₊⊹ </summary>
+<summary> 𓏲ּ𝄢 BYI ₊⊹ </summary>
 
 - *I will block freely .*
 
