@@ -1,3 +1,5 @@
+<img width="1395" height="770" alt="Screenshot 2026-11-04 011542" src="https://github.com/user-attachments/assets/3b04ada8-9502-474d-a529-8842185c1226" />
+
 ***[ SCYTHE ] : ❝ Oh how rude of me . Allow me too reintroduce myself properly ♡ ! ❞***
 
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
