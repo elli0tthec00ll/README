@@ -1,6 +1,6 @@
 ### Welcome !
 
-𓎢𓎠𓎟𓎠𓎟𓎠𓎠𓎟𓎡
+⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
 <details>
 <summary>ᛝ About me / Byi ♡</summary>
@@ -14,10 +14,10 @@
 - More too be added .
 </details>
 
-𓎢𓎠𓎟𓎠𓎟𓎠𓎠𓎟𓎡
+⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
 <details>
-<summary>ᛝ DNI ♡</summary>
+<summary>𓏵 DNI ♡</summary>
   
 - Drama 
   
