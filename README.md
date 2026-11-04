@@ -60,3 +60,5 @@
   
 - *Chance yumes !*
 </details>
+
+<img width="340" height="240" alt="Mastery_Sticker_I_Scythe" src="https://github.com/user-attachments/assets/297ae3c1-d4e8-4507-8a22-ba581bc4240a" />
