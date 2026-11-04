@@ -27,6 +27,10 @@
 - *I am offtab sometimes . whisper to interact is prefered !*
   
 - *More too be added .*
+<details>
+
+
+<summary> 𓏲ּ𝄢 WHERE YOU'LL SEE ME AT ₊⊹ </summary>
 </details>
 
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
