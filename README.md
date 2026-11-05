@@ -41,11 +41,13 @@
   
   - *Bakery*
 
+  - *Docks*
+
   - *Phighting Area*
 
-  - *Sometimes Spawn*
+  - *Dandy's World Area*
 
-  - *Docks*
+  - *Forsaken Area*
 
   - *Island (Probably spectating rps or hosting)*
 
