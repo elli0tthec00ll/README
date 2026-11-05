@@ -64,13 +64,13 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 <details>
 <summary>$\color{#2BBF9F}\textsf{𓏵 DNI ♡}$</summary>
   
-- *Drama .* 
+- $\color{#2BBF9F}\textsf{Drama .}$
   
-- *T.R.A.S.H*
+- $\color{#2BBF9F}\textsf{T.R.A.S.H}$
   
-- *Pro/Darkshippers .*
+- $\color{#2BBF9F}\textsf{Pro/Darkshippers .}$
   
-- *MAGA .*
+- $\color{#2BBF9F}\textsf{MAGA .}$
   
-- *Chance yumes ! (I'm a voidsharing chance yumeshipper .*
+- $\color{#2BBF9F}\textsf{Chance yumes ! (I'm a voidsharing chance yumeshipper .}$
 </details>
