@@ -29,13 +29,13 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 <details>
 <summary>$\color{#2BBF9F}\textsf{𓏲ּ𝄢 BYI ₊⊹}$</summary>
 
-- *I will block freely .*
+- $\color{#2BBF9F}\textsf{I will block freely .}$
 
-- *I am offtab sometimes . whisper to interact is prefered !*
+- $\color{#2BBF9F}\textsf{I am offtab sometimes . whisper to interact is prefered !}$
 
-- *Tone tags aren't required when talking with me but they are highly encouraged .*
+- $\color{#2BBF9F}\textsf{Tone tags aren't required when talking with me but they are highly encouraged .}$
   
-- *More too be added .*
+- $\color{#2BBF9F}\textsf{More too be added .}$
   </details>
   
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
