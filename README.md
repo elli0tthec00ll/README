@@ -8,8 +8,6 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
 ![](https://komarev.com/ghpvc/?username=elli0tthec00ll&label=scythe+beans)
 
-
-
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
 <details>
