@@ -43,19 +43,19 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 <details>
 <summary>$\color{#2BBF9F}\textsf{♯ WHERE YOU'LL SEE ME AT ಄}$</summary>
   
-  - *Bakery*
+  - $\color{#2BBF9F}\textsf{Bakery}$
 
-  - *Docks*
+  - $\color{#2BBF9F}\textsf{Docks}$
 
-  - *Phighting Area*
+  - $\color{#2BBF9F}\textsf{Phighting Area}$
 
-  - *Dandy's World Area*
+  - $\color{#2BBF9F}\textsf{Dandy's World Area}$
 
-  - *Forsaken Area*
+  - $\color{#2BBF9F}\textsf{Forsaken Area}$
 
-  - *Island (Probably spectating rps or hosting)*
+  - $\color{#2BBF9F}\textsf{Island (Probably spectating rps or hosting)}$
 
-  - *With Friends (˶ˆᗜˆ˵)*
+  - $\color{#2BBF9F}\textsf{With Friends (˶ˆᗜˆ˵)}$
   
   </details>
 
