@@ -13,7 +13,7 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
 <details>
-<summary>ᛝ ABOUT ME ♡</summary>
+<summary>$\color{#2BBF9F}\textsf{ᛝ ABOUT ME ♡}$</summary>
   
 - *17 y/o .*
 
@@ -27,7 +27,7 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
 <details>
-<summary> 𓏲ּ𝄢 BYI ₊⊹ </summary>
+<summary>$\color{#2BBF9F}\textsf{𓏲ּ𝄢 BYI ₊⊹}$</summary>
 
 - *I will block freely .*
 
@@ -41,7 +41,7 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
 <details>
-<summary> ♯ WHERE YOU'LL SEE ME AT ಄ </summary>
+<summary>$\color{#2BBF9F}\textsf{♯ WHERE YOU'LL SEE ME AT ಄}$</summary>
   
   - *Bakery*
 
@@ -62,7 +62,7 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
 <details>
-<summary>𓏵 DNI ♡</summary>
+<summary>$\color{#2BBF9F}\textsf{𓏵 DNI ♡}$</summary>
   
 - *Drama .* 
   
