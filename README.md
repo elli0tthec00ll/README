@@ -15,13 +15,13 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 <details>
 <summary>$\color{#2BBF9F}\textsf{ᛝ ABOUT ME ♡}$</summary>
   
-- *17 y/o .*
+- $\color{#2BBF9F}\textsf{17 y/o .}$
 
-- *He / Him , It / It's . NEVER use she / her terms on me please .*
+- $\color{#2BBF9F}\textsf{He / Him , It / It's . NEVER use she / her terms on me please .}$
 
-- *DID , Questioning BPD .*
+- $\color{#2BBF9F}\textsf{DID , Questioning BPD .}$
 
-- *More too be added .*
+- $\color{#2BBF9F}\textsf{More too be added .}$
 </details>
 
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
