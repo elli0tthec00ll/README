@@ -29,6 +29,8 @@
 - *I will block freely .*
 
 - *I am offtab sometimes . whisper to interact is prefered !*
+
+- *Tone tags aren't required when talking with me but they are highly encouraged .*
   
 - *More too be added .*
   </details>
@@ -64,7 +66,7 @@
   
 - *MAGA .*
   
-- *Chance yumes !*
+- *Chance yumes ! (I'm a voidsharing chance yumeshipper .*
 </details>
 
 <img width="340" height="240" alt="Mastery_Sticker_I_Scythe" src="https://github.com/user-attachments/assets/297ae3c1-d4e8-4507-8a22-ba581bc4240a" />
