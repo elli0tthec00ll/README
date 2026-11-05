@@ -1,7 +1,9 @@
 <img width="1600" height="320" alt="Mastery_Banner_II_Scythe" src="https://github.com/user-attachments/assets/b3c6020e-7fea-4191-a629-5fcb16c9e9f1" />
 
 
-***[ SCYTHE ] : ❝ Oh how rude of me . Allow me too reintroduce myself properly ♡ ! ❞***
+
+$\color{#2BBF9F}\textsf{[ SCYTHE ] : ❝ Oh how rude of me . Allow me too reintroduce myself properly ♡ ! ❞}$
+
 
 ![](https://komarev.com/ghpvc/?username=elli0tthec00ll&label=scythe+beans)
 
