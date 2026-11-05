@@ -2,7 +2,7 @@
 
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
-$\color{#2BBF9F}\huge\textsf{[ SCYTHE ] : ❝ Oh how rude of me . Allow me too reintroduce myself properly ♡ ! ❞}$
+$\color{#2BBF9F}\huge\textsf{[ SCYTHE ] : ❝ Oh how rude of me . . . Allow me too reintroduce myself properly ♡ ! ❞}$
 
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
