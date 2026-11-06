@@ -54,6 +54,10 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
   - $\color{#2BBF9F}\textsf{Island (Probably spectating rps or hosting)}$
 
   - $\color{#2BBF9F}\textsf{With Friends (˶ˆᗜˆ˵)}$
+ 
+  - $\color{#2BBF9F}\huge\textsf{SAFE SERVER 2}$
+ 
+  - $\color{#2BBF9F}\textsf{Spawn}$
   
   </details>
 
