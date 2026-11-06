@@ -6,7 +6,7 @@ $\color{#2BBF9F}\huge\textsf{[ SCYTHE ] : ❝ Oh how rude of me . . . Allow me t
 
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
-![](https://komarev.com/ghpvc/?username=elli0tthec00ll&label=scythe+beans)
+![](https://komarev.com/ghpvc/?username=elli0tthec00ll&label=♡&color=2BBF9F)
 
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
