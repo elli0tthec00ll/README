@@ -45,7 +45,7 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
 - $\color{#2BBF9F}\huge\textsf{SAFE SERVER 1}$
   
-  - $\color{#2BBF9F}\textsf{Below bakery}$
+  - $\color{#2BBF9F}\textsf{Below Bakery}$
 
   - $\color{#2BBF9F}\textsf{Docks}$
 
@@ -58,6 +58,8 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
   - $\color{#2BBF9F}\huge\textsf{SAFE SERVER 2}$
  
   - $\color{#2BBF9F}\textsf{Spawn}$
+ 
+  - $\color{#2BBF9F}\textsf{Above Bakery}$
   
   </details>
 
