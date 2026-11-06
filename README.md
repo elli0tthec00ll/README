@@ -51,10 +51,6 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
   - $\color{#2BBF9F}\textsf{Phighting Area}$
 
-  - $\color{#2BBF9F}\textsf{Dandy's World Area}$
-
-  - $\color{#2BBF9F}\textsf{Forsaken Area}$
-
   - $\color{#2BBF9F}\textsf{Island (Probably spectating rps or hosting)}$
 
   - $\color{#2BBF9F}\textsf{With Friends (˶ˆᗜˆ˵)}$
