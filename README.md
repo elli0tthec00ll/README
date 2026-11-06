@@ -42,6 +42,8 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
 <details>
 <summary>$\color{#2BBF9F}\textsf{♯ WHERE YOU'LL SEE ME AT ಄}$</summary>
+
+- $\color{#2BBF9F}\huge\textsf{SAFE SERVER 1}$
   
   - $\color{#2BBF9F}\textsf{Bakery}$
 
