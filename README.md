@@ -45,7 +45,7 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
 - $\color{#2BBF9F}\huge\textsf{SAFE SERVER 1}$
   
-  - $\color{#2BBF9F}\textsf{Bakery}$
+  - $\color{#2BBF9F}\textsf{Below bakery}$
 
   - $\color{#2BBF9F}\textsf{Docks}$
 
