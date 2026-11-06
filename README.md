@@ -19,6 +19,8 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
 - $\color{#2BBF9F}\textsf{DID , Questioning BPD .}$
 
+- $\color{#2BBF9F}\textsf{Heavy Scythe and Mafioso kin .}$
+
 - $\color{#2BBF9F}\textsf{More too be added .}$
 </details>
 
@@ -71,6 +73,8 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 - $\color{#2BBF9F}\textsf{MAGA .}$
   
 - $\color{#2BBF9F}\textsf{Chance yumes ! (I'm a voidsharing chance yumeshipper .}$
+
+- $\color{#2BBF9F}\textsf{Scythe and Mafioso kins ( Sorry i get uncomforable . ) .}$
 </details>
 
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
