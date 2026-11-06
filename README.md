@@ -21,6 +21,8 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
 - $\color{#2BBF9F}\textsf{Heavy Scythe and Mafioso kin .}$
 
+- $\color{#2BBF9F}\textsf{I follow people that are my friends and people who i think are cool and I'd love to interact with one day !}$
+
 - $\color{#2BBF9F}\textsf{More too be added .}$
 </details>
 
