@@ -5,8 +5,6 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 $\color{#2BBF9F}\huge\textsf{[ SCYTHE ] : ❝ Oh how rude of me . . . Allow me too reintroduce myself properly ♡ ! ❞}$
 $\color{#2BBF9F}\tiny\textsf{Best viewed on pc and with dark mode !}$
 
-$\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
-
 ![](https://komarev.com/ghpvc/?username=elli0tthec00ll&label=♡&color=2BBF9F)
 
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
@@ -101,9 +99,9 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 <details>
 <summary>$\color{#2BBF9F}\textsf{! NOMINATIONS !}$</summary>
 
-- [𖦏](https://github.com/piddlesjet) $\color{#2BBF9F}\textsf{Piddles Jet as Pony Towns scythe rifle !}$
+- [𖦏](https://github.com/piddlesjet) $\color{#2BBF9F}\textsf{Piddles Jet as Pony Towns scythe rifle ! Thank you !}$
 
-- [𖦏](https://github.com/Knox-Event) $\color{#2BBF9F}\textsf{Knox Events as Knox Events scythe rifle and the most wanted by boggio ♪ !}$
+- [𖦏](https://github.com/Knox-Event) $\color{#2BBF9F}\textsf{Knox Events as Knox Events scythe rifle and the most wanted by boggio ♪ ! Thank you !}$
 </details>
 
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
