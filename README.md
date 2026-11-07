@@ -72,6 +72,10 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 <summary>$\color{#2BBF9F}\textsf{𓂃 PONIES YOU'LL SEE ME AS ۶ৎ}$</summary>
   
 <img width="184" height="252" alt="pony-town-ᴡʀɪᴛɪɴɢ , ᴡ2ɪ , s-ᴀᴛᴀ , ᴄ_ʜ-dance-sit-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/ffbf299a-5288-4e4d-98e7-b1c08633c155" />
+
+<img width="192" height="212" alt="pony-town-_🫧 - ᴍᴇ ᴀs ᴋoɪ - ғɪʜ w2i-dance-sit-blinking-padded-toy418-4x" src="https://github.com/user-attachments/assets/d92ee6bb-3e97-4ed6-b489-216fd4cb8cde" />
+
+<img width="196" height="224" alt="pony-town-_🌈 - ʙʀɪɢʜᴛᴇʏᴇs !-dance-sit-blinking-padded-4x (1)" src="https://github.com/user-attachments/assets/7e4af696-40b9-4f88-bdb3-b79fda8719c5" />
 </details>
 
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
