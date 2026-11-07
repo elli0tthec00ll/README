@@ -88,7 +88,7 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 <details>
 <summary>$\color{#2BBF9F}\textsf{! NOMINATIONS !}$</summary>
 
-- [Piddles Jet](https://github.com/piddlesjet) as pony towns scythe rifle !
+- <summary>$\color{#2BBF9F}\textsf{[Piddles Jet](https://github.com/piddlesjet) as pony towns scythe rifle !}$</summary>
 </details>
 
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
