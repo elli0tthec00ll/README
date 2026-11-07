@@ -71,7 +71,7 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 <details>
 <summary>$\color{#2BBF9F}\textsf{𓂃 PONIES YOU'LL SEE ME AS ۶ৎ}$</summary>
   
-<img width="672" height="944" alt="pony-town-ᴡʀɪᴛɪɴɢ , ᴡ2ɪ , s-ᴀᴛᴀ , ᴄ_ʜ-dance-sit-blinking-padded-ponyplush-16x" src="https://github.com/user-attachments/assets/6fe8f7da-fe63-499d-a6d6-73f3643d9ad3" />
+<img width="184" height="252" alt="pony-town-ᴡʀɪᴛɪɴɢ , ᴡ2ɪ , s-ᴀᴛᴀ , ᴄ_ʜ-dance-sit-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/ffbf299a-5288-4e4d-98e7-b1c08633c155" />
 </details>
 
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
