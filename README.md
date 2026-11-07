@@ -68,6 +68,14 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 
 <details>
+<summary>$\color{#2BBF9F}\textsf{𓂃 PONIES YOU'LL SEE ME AS ۶ৎ}$</summary>
+  
+<img width="184" height="252" alt="pony-town-ᴡʀɪᴛɪɴɢ , ᴡ2ɪ , s-ᴀᴛᴀ , ᴄ_ʜ-dance-sit-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/ed0594f1-5f5b-4731-b56a-bdb7f8aabd17" />
+</details>
+
+$\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
+
+<details>
 <summary>$\color{#2BBF9F}\textsf{𓏵 DNI ♡}$</summary>
   
 - $\color{#2BBF9F}\textsf{Drama .}$
