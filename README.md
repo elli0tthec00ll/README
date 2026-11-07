@@ -88,9 +88,9 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 <details>
 <summary>$\color{#2BBF9F}\textsf{! NOMINATIONS !}$</summary>
 
-- [Piddles Jet](https://github.com/piddlesjet) , as Pony Towns scythe rifle !
+- [𖦏](https://github.com/piddlesjet) Piddles Jet as Pony Towns scythe rifle !
 
-- [Knox Event](https://github.com/Knox-Event) , as Knox Events scythe rifle !
+- [𖦏](https://github.com/Knox-Event) Knox Events as Knox Events scythe rifle and the most wanted by boggio ♪ !
 </details>
 
 $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
