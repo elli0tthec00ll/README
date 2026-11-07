@@ -83,6 +83,8 @@ $\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
 - $\color{#2BBF9F}\textsf{Scythe and Mafioso kins ( Sorry i get uncomforable . ) .}$
 </details>
 
+$\color{#2BBF9F}\textsf{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}$
+
 <details>
 <summary>$\color{#2BBF9F}\textsf{! NOMINATIONS !}$</summary>
 
